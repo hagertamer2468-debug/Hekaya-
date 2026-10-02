@@ -30,7 +30,7 @@ The goal is to help young users understand the key events, values, and lessons f
 - **Seif Allah Monzer Nour El-Din Halawa**
 - **Shrouk saad mohamed ali**
 - **Shrouk saad mohamed ali**
-- **Abdelrahman
+- **Abdelrahman Mohamed Youssef**
 ---
 
 ## 🎓 **Instructor**
