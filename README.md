@@ -29,7 +29,7 @@ The goal is to help young users understand the key events, values, and lessons f
 - **Hager Tamer Medhat**
 - **Seif Allah Monzer Nour El-Din Halawa**
 - **Shrouk saad mohamed ali**
-- **Shrouk saad mohamed ali**
+- **Salma saad mohamed ali**
 - **Abdelrahman Mohamed Youssef**
 ---
 
